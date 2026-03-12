@@ -1,4 +1,4 @@
-## 🖐️🧞‍♀️ Hi there!
+## 🖐️ Hi there!
 
 I'm a product designer, solving complex problems through strategic, hypothesis-driven designs.
 
